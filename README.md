@@ -1,4 +1,4 @@
-### Bonjourno! Konichiwa! 👻🖥
+### Buon Giorno! Konichiwa! 👻🖥
 
 ## Matty here! Let's make some glorious components that people want to interact with! I love coding front-end, back-end, sideways hacking. 
 
@@ -9,6 +9,6 @@
 - 💬 Ask me about hacking [Ableton Live](https://www.ableton.com/en/)
 - 📫 How to reach me: [https://www.linkedin.com/in/matthewserwer/](https://www.linkedin.com/in/matthewserwer/)
 - 😄 Pronouns: he him
-- ⚡ Fun fact: I'll make you an eggplant parmasan that will blow your socks off.
+- ⚡ Fun fact: I'll make you an eggplant parmesan that will blow your socks off.
 
 <img align='center' src='https://media.giphy.com/media/YVGeZszGz4eC4/giphy.gif'>
