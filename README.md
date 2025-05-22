@@ -10,4 +10,4 @@
 - 😄 Pronouns: he him
 - ⚡ Fun fact: I'll make you an eggplant parmesan that will blow your socks off.
 
-<img align='center' src='https://media.giphy.com/media/YVGeZszGz4eC4/giphy.gif'>
+<img align='center' src='https://moviesfilmsandflix.com/wp-content/uploads/2018/12/Hackers-skateboard-gif.gif'>
